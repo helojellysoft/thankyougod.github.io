@@ -1,1 +1,1 @@
-# veeracomputer.github.io
+# thankyougod.github.io
